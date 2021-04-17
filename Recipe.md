@@ -1,0 +1,3 @@
+# Recipe for Pumpkin
+* Heat oil in a large saucepan over low heat, add onion and leek and cook for 2-3 minutes, until softened but not coloured. Add garlic and spices and cook, stirring, for 30 seconds. Add pumpkin, potato and stock and bring to the boil. Turn heat to low, cover and simmer for 30 minutes. Allow to cool slightly, then blend in batches.
+* Return soup to pan, stir through cream and reheat gently. Season and add a little more nutmeg if desired.
